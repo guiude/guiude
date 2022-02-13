@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @guiude
+- 👀 I have followed a managerial career and I’m interested in keep pushing, keep learning new things. I'll publish here any stuff I work on.
